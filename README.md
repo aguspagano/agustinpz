@@ -21,6 +21,9 @@ I consider myself as an All-Terrain Project Leader and love being challenged eve
 
 I'm open to work, please feel free to reach me out.
 
+[LinkedIn](https://www.linkedin.com/in/agustinpz/)
+
+
 Cheers!
 
 
