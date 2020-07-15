@@ -3,7 +3,9 @@
 Hello!
 
 This is Agustin, a versatile process and customer satisfaction oriented industrial engineer from Argentina.
-Spent quite a few years working developing a ski building company with two friends, also love teaching.
+
+I've spent quite a few years developing my own company with two friends as an entrepreneur.
+I'm a passionate of skiing and love teaching.
 
 Currently making my way into the IT world. Learning from the best at [Soy Henry](https://www.soyhenry.com/)
 
